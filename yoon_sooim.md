@@ -18,3 +18,5 @@ This drama is a work that announced the disease called schizophrenia. In particu
 https://youtu.be/nXHvDDLiANA?si=tToWB-265Wro4KKu
 
 Example: There are similarities with my data in that it is a ballad OST for Korean drama called [*Doctor Slump*](bae_sangjun.md).
+
+<img src="./yoon_sooim_img.PNG" alt="image depicting Schizophrenia" style="width:20%;" />
