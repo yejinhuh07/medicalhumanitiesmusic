@@ -11,7 +11,9 @@ Type: Classical
 
 # Nymphomaniac
 
-In the film Nymphomaniac, the story is about a woman named 'Joe.' After she is found hurt, she tells her life story to 'Seligman,' the man who rescued her. Whenever Joe tells a story, Seligman keeps trying to annotate it with his knowledge of things like fishing, mathematics, psychology or music. Their talk becomes a kind of smart argument, like a game of ping-pong: Joe shares her feelings, and Seligman replies with his logical ideas.
+In the film Nymphomaniac, the story is about a woman named Joe. After she is found hurt, she tells her life story to Seligman, the man who rescued her. Whenever Joe tells a story, Seligman keeps trying to annotate it with his knowledge of things like fishing, mathematics, psychology or music. Their talk becomes a kind of smart argument, like a game of ping-pong: Joe shares her feelings, and Seligman replies with his logical ideas.
+
+The film's title, 'Nymphomaniac,' refers to Joe. This goes beyond merely having a strong libido; it signifies a state of persistent failure to control repetitive sexual impulses, where one's life becomes dominated by that behavior.
 
 In [chapter 5 The Little Organ School](https://youtu.be/dIvuZ1bmrWs?feature=shared), Seligman starts the conversation with, “It's something I've been listening to a lot lately.” and introduces Bach’s chorale prelude <Ich ruf zu Dir, Herr Jesu Christ>. “This piece has three voices: the bass voice, the second voice played with the left hand, and first voice played with the right hand. (…) And together, these three voices create the polyphony.”
 Joe immediately maps her nymphomaniac experience onto this musical form. “Normally, a nymphomaniac is seen as... someone who can't get enough, and therefore, has sex with many different people. Well, that, of course, is true, but if I'm to be honest, I see it precisely as the sum of all these different sexual experiences. So in that way, I have only one lover.”
@@ -26,7 +28,7 @@ The fact that this inherently flawed metaphor is directed with such aesthetic pe
 
 In musical Notre-Dame de Paris, Quasimodo’s body crystallises into one grotesque mass, so [*hyper-visible*](kim_hyoju.md) that every gaze must collide with its “monstrous” excess. Joe’s body, by contrast, scatters into erotic shards—encountered by herself and by others only as isolated acts or organs—so that no coherent figure ever comes into focus. One body is oppressively present, pinned to a single outline; the other is perpetually absent, encountered only in fragments that refuse to add up to a person. Together they trace the two poles of deviant embodiment.
 
-# [별 (이병기 시 / 윤학준 곡)](https://youtu.be/KvndHb9Zgqw?feature=shared)
+# [M.Sop 이지영  |  별  |  이병기 시, 윤학준 곡](https://youtu.be/KvndHb9Zgqw?feature=shared)
 
 죽음은 남겨진 이들의 삶을 아프게 짓누른다. 그 깊은 침묵과 슬픔 속에서 헤어나오는 것은 언제나 어려운 일이다. 하지만 산 사람은 죽음의 시간에만 갇혀 있을 수 없다. 그들은, 본래 그들이 있던 자리로 돌아가야 한다. 나는 <별>이 그 막막한 귀환을 위한 다정한 이정표가 되길 바란다.
 
