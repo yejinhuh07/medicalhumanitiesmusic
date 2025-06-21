@@ -48,8 +48,8 @@ Some of lyrics like "Congraturations, cheers, and applause at my funeral that I 
 “장애는 내 인생을 멈추게 하지 않았다. 오히려 새로운 감각을 살게 했다.”
 
 ## 플레이리스트
-(Ólafur Arnalds – Near Light)[https://youtu.be/0kYc55bXJFI]
+[Ólafur Arnalds – Near Light](https://youtu.be/0kYc55bXJFI)
 
-(Aurora – Runaway)[https://youtu.be/adLVwBeUIy4]
+[Aurora – Runaway](https://youtu.be/adLVwBeUIy4)
 
-(이소라 – 신청곡)[https://youtu.be/DpaNMX7wc2k]
+[이소라 – 신청곡](https://youtu.be/DpaNMX7wc2k)
