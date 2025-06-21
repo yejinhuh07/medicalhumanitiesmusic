@@ -42,7 +42,6 @@ but the music 'Leaving Wallbrook - On the Road' shows disability of the protagon
 
 
 플레이리스트
-
 1. [비탈리 - 샤콘느](https://youtu.be/1F7c8zIhBGg?si=kh9_aYk0HB5wTVss) 애절한 바이올린 선율이 처음 녹내장을 진단 받았을 때의 충격과 절망을 잘 표현합니다.
 2. [김동률 - 감사](https://youtu.be/OHJle2J3RTA?si=gQGomBheI7ypL93U) "더 이상 나에겐 그 무엇도 바랄게 없어요
 지금처럼만 서로를 사랑하는 게 누군가 주신 나의 행복이죠" 
