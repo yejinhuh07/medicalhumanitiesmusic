@@ -31,5 +31,5 @@ Example: The same disease is described in Agnieszka Holland's 2006 film [*Copyin
 1. [György Ligeti - Atmospheres](https://youtu.be/RCNzwdLwA8g?si=S2RfZuCMYgO6ZCkt)
 이 곡은 조성도 리듬도 불분명해서 곡이 시작됨과 동시에 시간이 멈춰있는 듯한 인상을 준다. 음들이 이동하지 않고 공기 중에 부유하는 듯한 정적인 음형은 내가 감각을 잃고 현실감이 흐릿해지는 순간의 심리와 유사하다.
 
-2. [Nils Frahm - Says]([https://youtu.be/OwoEGVdn7jU?si=tGanTJWhjd-xzywL](https://youtu.be/dIwwjy4slI8?si=0UXWVL8vuVtCc3Qx))
+2. [Nils Frahm - Says](https://youtu.be/OwoEGVdn7jU?si=tGanTJWhjd-xzywL](https://youtu.be/dIwwjy4slI8?si=0UXWVL8vuVtCc3Qx)
 잔잔하게 흘러가는 이 곡은 조용한 혼란과 맞닿아있다. 반복되는 멜로디와 어딘가 암울한 듯한 분위기는 차분하면서도 불안한 심리를 잘 묘사해준다.
