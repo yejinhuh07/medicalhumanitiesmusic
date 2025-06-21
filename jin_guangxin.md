@@ -26,5 +26,6 @@ The melody of the song is gentle and deep, and the lyrics express the nostalgia 
 
 제 친구 중 한 명은 어릴 때부터 음악을 사랑했으며, 피아노와 기타는 그의 삶에서 없어서는 안 될 부분이었습니다. 그러나 작년에 그는 갑자기 이명을 느끼고 청력이 점차 약해졌으며, 의사는 감각 신경성 청력 손실로 진단했습니다. 그에게는 청천벽력이나 다름없었고, 음악의 세계는 점점 멀어져서 가장 간단한 사람의 목소리조차 흐릿해졌습니다. 처음에 그는 깊은 자기 의심에 빠졌지만, 서서히 그는 보청기와 진동 장치를 사용하여 음악의 리듬을 느끼는 법을 배웠습니다. 그는 비록 목소리가 흐릿해졌지만, 리듬과 감정은 여전히 생생하다고 말했습니다. 오늘날 그는 다른 방식으로 음악 및 생활과 대화하며 여전히 강하고 낙관적입니다.
 
-https://youtu.be/NAEppFUWLfc?si=mQHljAAuWSadoZYZ
-https://youtu.be/u7dsGzJcNzA?si=fnwvdIKH7CxkjAYF
+[The sound of Slience](https://youtu.be/NAEppFUWLfc?si=mQHljAAuWSadoZYZ)
+[Renee's Song](https://youtu.be/u7dsGzJcNzA?si=fnwvdIKH7CxkjAYF
+)
