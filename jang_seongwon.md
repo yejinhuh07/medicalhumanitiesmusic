@@ -53,6 +53,6 @@ In musical Notre-Dame de Paris, Quasimodo’s body crystallises into one grotesq
 
 답을 찾지 못한 나의 시선은 마침내 내면으로 옮겨가 삶 전체로 향하기 시작했다. 살아온 모든 순간을 의심하며 내가 저지른 죄를 찾아 헤맸다. 피자를 좋아해서였을까? 운동이 부족해서였을까? 잠을 늦게 자서였을까? 손을 자주 씻지 않아서였을까? … 결정적인 원인 같은 건 없었다. 사소한 습관들과 무심코 넘겼던 선택들이 모여 지금의 병을 만든 모양이었다. 그야말로 모든 순간이 오류였다. 그러고 보면 나는 애초부터 이렇게 될 [운명](https://youtu.be/Td_Tn9VC_G8?feature=shared)이었는지도 모른다.
 
-천식 발작은 밤에 더 심해지는 경향이 있다. 나는 가끔씩 익사 직전의 사람처럼 허우적거리며 고통스럽게 잠에서 깨어난다. 쌕쌕거리는 숨소리가 고요한 방 안을 가득 메운다. 어둠 속에서 침대 머리맡을 더듬어 흡입기를 찾았다. 다시 잠들기는 글렀다. 나는 이 고요하고 잔인한 시간 속에서 내가 잃어버린 것들을 생각했다. 평온한 [밤](https://youtu.be/8JrW-MOsbFw?feature=sharedhttps://youtu.be/8JrW-MOsbFw?feature=shared)은 이제 내게 허락되지 않는 꿈일 뿐이다.
+천식 발작은 밤에 더 심해지는 경향이 있다. 나는 가끔씩 익사 직전의 사람처럼 허우적거리며 고통스럽게 잠에서 깨어난다. 쌕쌕거리는 숨소리가 고요한 방 안을 가득 메운다. 어둠 속에서 침대 머리맡을 더듬어 흡입기를 찾았다. 다시 잠들기는 글렀다. 나는 이 고요하고 잔인한 시간 속에서 내가 잃어버린 것을 생각했다. [평온한 밤](https://youtu.be/8JrW-MOsbFw?feature=sharedhttps://youtu.be/8JrW-MOsbFw?feature=shared)은 이제 내게 허락되지 않는 꿈일 뿐이다.
 
 https://youtu.be/2VeGpv6FQSs?feature=shared
