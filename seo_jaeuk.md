@@ -38,6 +38,7 @@ The music of both works has something in common in that it aurally embodies the 
 ## 질병서사 플레이리스트
 드라마 킬미, 힐미 속 주인공 차도현은 일곱개의 인격을 가진 재벌 3세이다. 누구보다 빛나는 삶 뒤에, 그는 매일 아침 "오늘의 나는 누구인가?"라는 공포와 함께 깨어난다. 어린 시절 트라우마가 만든 7개의 인격이 서서히 그의 삶을 잠식했다. 회의실에서 갑자기 어린아이로 움츠러들거나, 통제불능의 분노에 휩싸일 때마다 사람들은 그를 기이한 사람이라 했지만, 사실 그는 스스로도 통제할 수 없는 자신이 가장 두려웠다. 정신과 상담을 부끄러워하던 그는 어느 날, 어린아이 인격 '안요섭'의 "날 버리지 마"라는 외침에서 깨달음을 얻는다. 정신의학적 치료를 통해 그는 비로소 모든 인격을 안아주기 시작한다.
   
+[유튜브 플레이리스트](https://youtube.com/playlist?list=PLEj_-s7VhcyX74Rw-U8PgoTbZ5pqCwfIJ&si=Gvy5H8iMIvTOmooZ)   
 Hurt - Johnny Cash   
 "I hurt myself today to see if i still feel" 트라우마와 자기파괴를 향한 직관적인 질문으로 주인공이 자신의 인격들과 마주할 때의 고통을 상징한다.
 
