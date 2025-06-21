@@ -20,3 +20,5 @@ The song 'Heroes' contains the following lyrics: 'Though nothing will drive them
 Example: A similar situation as the movie *Wonder* is described in a TV drama [*Extraordinary Attorney Woo*](kim_dawon.md). Both shows features a protagonist who are different compared to the world. Whilst people view them differently, both characters don't let others' view judge who they are and continue to do what they think it's right. It's hard when the whole world is biased towards you and when they judge you inside, but these protagonists don't let those biased views stop them and I think it's a feature we all can learn.
 
 <img src="./chung_jayhoon_img.png" alt="" style="width:25%;" />
+
+내 질환서사: 전에 한 번 넘어졌다가 이로 입술과 턱 사이를 관통한 적이 있어 꿰어야 했던 큰 수술을 한 번 했었다. 그때 생각을 하면 많이 아팠지만 괜찮다 괜찮다 자기암시를 했더니 정말로 생각보다 괜찮아진 것 같다. 그래서 내 자신을 괜찮다해주는 노래랑 내 감정을 대변해주는 노래를 담아보았다. [내 플레이리스트](https://www.youtube.com/playlist?list=PLjdX225coPMo_W5tOxp_FiSUxSEwoYadv)
