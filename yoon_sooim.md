@@ -19,7 +19,7 @@ This drama helped bring greater awareness to schizophrenia. It gently portrays t
 
 The simple melody contrasts with the chaotic inner world of those with schizophrenia, while the music provides a sense of stability and warmth. This aligns with the drama’s narrative, where the protagonist (Jang Jae-yeol) gradually accepts his condition, and the people around him offer comfort and support for his pain.
 
-[*MV*](https://youtu.be/nXHvDDLiANA?si=tToWB-265Wro4KKu) This video provides a deeper understanding by presenting scenes from the drama alongside the song in the form of a music video.
+[*>>MV*](https://youtu.be/nXHvDDLiANA?si=tToWB-265Wro4KKu) This video provides a deeper understanding by presenting scenes from the drama alongside the song in the form of a music video.
 
 Example: There are similarities with my data in that it is a ballad OST for Korean drama called [*Doctor Slump*](bae_sangjun.md). Both works portray psychological suffering not merely as a pathological condition, but as something that can be healed through emotional connections, empathy, and love between people.
 
@@ -34,8 +34,9 @@ Example: There are similarities with my data in that it is a ballad OST for Kore
 
 
  # 나의 질병서사
+
  
- 내게 있어 질병 서사는 사랑을 느끼게 된 계기들과 뗄레야 뗄 수 없는 것이다. 나는 어렸을 적 약한 위장으로 인해 매년 병치레를 했다. 특히나 겨울만 되면 꼭 한 번씩은 배탈이 심하게 나 밤중에 응급실에 가곤 했다. 어릴 적부터 중학교 시절까진 집에서 부모님과 함께 지냈기에 내가 밤마다 아플 때면 항상 내 곁에는 날 돌봐줄 부모님이 계셨다. 아픈 날 데리고 오밤 중에 응급실에 다녀와선 쉬지도 못하고 밤새 이마를 만져보며 열이 떨어지긴할련지, 속은 괜찮은지, 미음도 먹지 못할 때면 따뜻한 차라도 끓여주시던 부모님의 사랑이 항상 바로 옆에 머물렀었다. 
+ [*>>Playlist*](https://youtube.com/playlist?list=PLvwfbZkF1ZlWlIoqicoyi7GpdtZnlmhs5&si=tBuE3Gxnw90GUgaa) 내게 있어 질병 서사는 사랑을 느끼게 된 계기들과 뗄레야 뗄 수 없는 것이다. 나는 어렸을 적 약한 위장으로 인해 매년 병치레를 했다. 특히나 겨울만 되면 꼭 한 번씩은 배탈이 심하게 나 밤중에 응급실에 가곤 했다. 어릴 적부터 중학교 시절까진 집에서 부모님과 함께 지냈기에 내가 밤마다 아플 때면 항상 내 곁에는 날 돌봐줄 부모님이 계셨다. 아픈 날 데리고 오밤 중에 응급실에 다녀와선 쉬지도 못하고 밤새 이마를 만져보며 열이 떨어지긴할련지, 속은 괜찮은지, 미음도 먹지 못할 때면 따뜻한 차라도 끓여주시던 부모님의 사랑이 항상 바로 옆에 머물렀었다. 
  
 처음으로 그 사랑의 크기를 깨달은 건 고등학교 시절 학교에서였다. 기숙사 생활을 하느라 부모님과도 떨어져 지냈고, 친구들 역시 공부하기에도 바빠 주변을 신경쓸 여력조차 없었다. 그런 순간에 위경련이 심하게 와 바로 옆에 친구들이 있었음에도 고통으로 인해 고개를 들지도, 입을 열 수 조차도 없었다. 
 
