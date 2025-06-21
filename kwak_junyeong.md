@@ -29,6 +29,10 @@ Some of lyrics like "Congraturations, cheers, and applause at my funeral that I 
 
 
 # 질환서사
+질환: 중도 청각장애 (20세 무렵 점진적 청력 상실)
+서사 유형: 탐구 서사 (Quest Narrative)
+*비언어적 서사 + 치유적 서사 구축 중심
+
 1막: 상실과 침묵의 시작
 대학 1학년, 귀가 ‘먹먹해지는’ 경험이 잦아진다. 처음엔 피로 탓이라 생각했지만, 검사 결과 양측 감각신경성 난청을 진단받는다.
 “내가 제일 좋아하던 게 음악인데… 아무것도 들리지 않게 된다면?”
