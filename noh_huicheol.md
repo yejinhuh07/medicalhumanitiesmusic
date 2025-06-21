@@ -30,4 +30,6 @@ Example: The same disability is described in Robert Mulligan's 1962 film [To Kil
 
 ### 나의 질환 서사
 
+[질환서사 유튜브 플레이리스트](https://youtube.com/playlist?list=PLJ90GvY6LhcnNCZNdFLLCc7p6et_dA7JF&feature=shared)
+
 저는 어렸을 때 소아기 아토피 피부염 (childhood atopic dermatits, ICD-11: EA80.1) 이라는 질환 가졌습니다. 이 질환은 말 그대도 소아기 때 아토피성 피부염이 발생하는 질환으로써 저는 5~9살 무렵에 가장 심하게 발생하였습니다. 어렸을 적 아토피 때문에 아토팜이라는 제품을 매일 씻고 난 후 전신에 발랐으며 아토팜의 로션 특유의 끈적함 때문에 항상 힘들어 했습니다. 아토피는 특히 컨디션이 좋지 않거나 겨울철 건조해지면 유독 심하게 발생했는데, 온몸이 아토피로 인해 빨갛게 뒤덮였고 옷을 입으면 옷과 피부가 닿을 때마다 쓸려서 쓰라린 고통과 간지러움이 참을 수 없을 정도로 심했다. 이후 점차 성장하며 자연스레 아토피는 사라지게 되었지만 지금도 컨디션이 안 좋아질 때면 제 몸 중에서 가장 먼저 피부가 뒤집어지는 반응이 나타납니다.
