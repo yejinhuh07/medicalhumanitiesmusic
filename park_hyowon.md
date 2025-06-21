@@ -6,7 +6,7 @@ Disability: Autism Spectrum Disorder_ASD
 ICD: 6A02.0
 Music: Beyond My Dream
 Singer: Sunwoo Jung-a
-Type: Folk music 
+Type: Folk
 ---
 
 # Extraordinary Attorney Woo
