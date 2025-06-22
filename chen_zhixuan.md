@@ -22,7 +22,7 @@ The same disease is described in Noh Heekyung's 2014 drama [*It's Okay, Taht's L
 
 # 나의 장례식에서 연주되길 희망하는 음악
 The song I want to play at the funeral is Deng Yao's [*Farewell Book*](https://www.youtube.com/watch?v=flSg2kEFK1E) . The name of this song is very sad, symbolizing separation, but the melody is indeed cheerful. I also hope that those who attend the funeral will not come with too sad a mood and this song will be my last voice to accompany them through the moment of separation.
----
+
 
 # 질환서사
 33세의 회사원 재민은 야근과 불규칙한 식사, 커피와 담배로 하루를 버티는 바쁜 직장인이다. 어느 날부터 상복부에 묘한 통증을 느끼기 시작했지만 대수롭지 않게 넘겼다. 그러나 공복 시 통증이 심해지고, 밤에도 잠을 설칠 정도로 악화되어 결국 병원을 찾게 된다.재민은 십이지장궤양 진단을 받고, 일상적인 식습관과 스트레스 관리의 중요성을 처음으로 절감한다. 처음엔 약물치료로 증상이 조금 나아졌지만, 스트레스가 심한 날엔 다시 통증이 찾아왔다. 그는 결국 회사에 병가를 내고, 삶의 방식을 되돌아보기 시작했다.
