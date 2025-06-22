@@ -48,6 +48,6 @@ Le Festin - Disney Pixar's "Ratatouille" OST
 
 신경성 식욕부진증은 단순히 식사를 거르는 것이 아니라, 심리적 요인에 의해 식욕이 크게 감소하고 신체 기능에까지 영향을 주는 상태라고 들었습니다. 제 경우, 학업에 대한 과도한 부담감과 완벽주의적 성향이 큰 원인으로 작용했던 것 같습니다. 
 저는 이런 힘든 수험생활을 하면서 큰 활력소가 되었던 노래들을 모아 리스트를 작성했습니다
-[플레이 리스트](https://youtu.be/uiCsFDJTMjk?si=B8Gw8Lmt9xe-0mxo)
+[플레이 리스트](https://youtube.com/playlist?list=PLAVSbcZ8DYHm3oaq3__mMNWd4MTzpa8pM&si=s2Qwi_TklzP97imo)
 
 
