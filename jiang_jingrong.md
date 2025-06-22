@@ -6,6 +6,7 @@ Disease: Cerebral Palsy
 Music: My Left Foot Theme  
 Composer: Elmer Bernstein  
 Type: Film Score  
+
 ---
 # My Left Foot
 *My Left Foot* is a biographical film based on the life of Christy Brown, a man born with cerebral palsy who was only able to control his left foot. Despite this challenge, he became a celebrated writer and painter. The film delicately portrays his struggles, achievements, and the support of his family.
