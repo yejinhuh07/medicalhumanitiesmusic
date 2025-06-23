@@ -1,7 +1,3 @@
-# Hello world!
+# Medical Humanities and Music DB
 
-This is Studying in Korea from China,
-
-My name is **JIANG JINGRONG**, Interior architecture design discipline at Hanyang University.
-
-This is my GitHub
+Created by the students of the common core course "Musicology of Disease, Disability, and Pain" at Hanyang University, Korea.
